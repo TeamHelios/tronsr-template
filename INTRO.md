@@ -7,4 +7,6 @@ Telegram: https://t.me/HeliosTron
 
 Twitter: https://twitter.com/Team_Helios18
 
+Email: Tron.Helios@gmail.com
+
 
