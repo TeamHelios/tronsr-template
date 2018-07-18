@@ -1,6 +1,6 @@
 Our plan is to be the best for Tron and the Community. We are wanting to have a self-sustaining system that will be around for a long time. We are wanting to create a system that will help in running the servers without costing anybody to use them. I believe this is Tron’s overall goal for us to complete through the Tron Sr’s. Right now, we are just trying to get started and get our name and plan out there. We will want the community to help us along the way and we will reward them. Because we know there are millions of ideas out there, but we need one that will last a long time. That will keep Tron alive and cheap for all of us to use.
 
-At first, 50% Tron Bank, 15% nodes, 15% Self-Sustaining System, 15% Team, 10% Taxes. 
+At first, 50% Tronics Bank, 15% nodes, 15% Self-Sustaining System, 15% Team, 10% Taxes. 
 
 50% will go into the Tronics Bank and this is for of our Tron reward will be going into this. We will have random payouts. 
 
