@@ -16,4 +16,9 @@ Now when we get voted in The top 27 start creating blocks, now that’s when we 
 
 70% Back to the community for voting us in.
 
+15% For building a better world, Dapp projects and building an Eco-Friendly System
+
+15% for the Team 
+
+
 
