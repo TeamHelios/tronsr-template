@@ -2,15 +2,15 @@ Our plan is to be the best for Tron and the Community. We are wanting to have a 
 Team Helios is partnering up with Beatzcoin
 Beatzcoin is building a decentralized digital platform that will change how we interact with digital media. 
 They are reinventing the global marketing platform for digital content, producers and the consumer. 
-They plan to transform how advertising interacts with the content provider as well as implemented strategies to engage users all while increasing the revenue potential of everyone involved. You can support Beatzcoin buy voting for Team Helios and you can buy their token on tronscan.io. Check them out at
-Beatzcoin.io.
+They plan to transform how advertising interacts with the content provider as well as implemented strategies to engage users all while increasing the revenue potential of everyone involved. You can support Beatzcoin buy voting for Team Helios and you can buy their token on tronscan.io. Check them out at Beatzcoin.io.
 
-We wanted to show the Tron community there’s a lot of work going on behind the scenes. We appreciate all our supporters. That is why we give 70% of the rewards back to the community and 15% is to help support Dapps Like Beatzcoin. The Other 15% is for our project, marketing and the team. We reward daily in TRX and we don’t just reward 70% we give the community systems that will benefit Tron’s Ecosystem and the community.
-
+Once we get into the top 27 or higher in rank we will start rewarding our original plan. Our goal is to support the network.  We appreciate all our supporters. We will have special airdrops and other ways of rewarding our supporters. We are working with community systems that will benefit Tron’s Ecosystem and the community. We partnered up with Beatzcoin because we believe in their project and it we benefit Tron's Network.
+We are about to start working on our project, we will be creating a Decentralized Storage Platform " STRATUS CLOUD " It's going to take a lot of work/support and we're going to do everything to make this happen, because we all are in serious need in a way to secure all of our data. Tron's Network is the key to making this happen.
+STRATUS Will be our token!!!
 
 Our plan is to help support Dapp systems that will improve Tron’s Ecosystem. This is one of many Systems that we will be partnering with. Our goal is to build a Decentralized App that will help you interact with the world and be completely secure. Vote Team Helios working for the new world.
 
-70% Back to the community for voting us in.
+70% of the block rewards back to the community for voting us in.
 
 15% For building a better world, Dapp projects and building an Eco-Friendly System
 
